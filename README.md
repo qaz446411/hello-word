@@ -2,4 +2,4 @@
 my first repository on GitHub
 
 
-Ilove :China:,
+Ilove :coffee:, pizza:, and :dancer:,
